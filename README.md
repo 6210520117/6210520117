@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there <a href="https://www.gautamkrishnar.com/%22%3E<img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"></a>
 - ⚡ Fun fact: If you want good at gaming, u need to know "napoleon bonaparte" gameplay STEP
 <!--
 **6210520117/6210520117** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
